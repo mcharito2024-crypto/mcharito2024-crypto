@@ -1,13 +1,11 @@
 ![image URL](https://github.com/mcharito2024-crypto/mcharito2024-crypto/blob/main/ChatGPT%20Image%2030%20ago%202026,%2002_19_48%20a.m..png?raw=true)
 ## MARIA DEL ROSARIO GUTIERREZ 👋
 ### ESTUDIANTE 
-### PROFESORADO EN INFORMATICA EDUCATIVA
-#### LICENCIATURA EN INFORMATICA EDUCATIVA
-#### Me considero una persona activa, curiosa y con ganas de aprender. En mi tiempo libre disfruto viajar, conocer nuevos lugares y practicar deportes. Estas experiencias me permiten salir de mi zona de confort, conocer diferentes personas y culturas, y enfrentar nuevos desafíos con entusiasmo.
-##### 🔭 I’m currently working on ...
-######  🌱 I’m currently learning ...
-###### 👯 I’m looking to collaborate on ...
-###### 🤔 I’m looking for help with ...💬 Ask me about ...📫 How to reach me: ...😄 Pronouns: ... ⚡ Fun fact: ...
+### 🌱PROFESORADO EN INFORMATICA EDUCATIVA
+#### 🌱LICENCIATURA EN INFORMATICA EDUCATIVA
+#### 👯  Me considero una persona activa, curiosa y con ganas de aprender. En mi tiempo libre disfruto viajar, conocer nuevos lugares y practicar deportes. Estas experiencias me permiten salir de mi zona de confort, conocer diferentes personas y culturas, y enfrentar nuevos desafíos con entusiasmo.
+##### 😄TRABAJO EN EL COLEGIO SECUNDARIO N°6.
+
 
 
 <!--
