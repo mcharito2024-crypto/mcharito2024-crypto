@@ -1,4 +1,4 @@
-
+![image URL](https://github.com/mcharito2024-crypto/mcharito2024-crypto/blob/main/ChatGPT%20Image%2030%20ago%202026,%2002_19_48%20a.m..png?raw=true)
 ## MARIA DEL ROSARIO GUTIERREZ 👋
 ### ESTUDIANTE 
 ### PROFESORADO EN INFORMATICA EDUCATIVA
